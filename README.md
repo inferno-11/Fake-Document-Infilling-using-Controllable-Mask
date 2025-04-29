@@ -12,7 +12,7 @@ The generated documents contain believable but false alternatives to the masked 
 
 
 Contact
-For any questions or inquiries, please contact sravi68379@gmail.com.
+For any questions or inquiries, please contact ayanburmawala@gmail.com.
 
 
 
